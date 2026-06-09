@@ -1,4 +1,4 @@
-# 
+# نخبة low cap gem sniper bot سير العمل لـ Mac OS | أصلي low cap gem sniper bot سير العمل لـ PC Windows. مع مسح التحكيم و تكامل API — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
